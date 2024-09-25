@@ -8,4 +8,9 @@ One day, little Tim was in math class, daydreaming. The teacher came over and as
 
 
 
+![image](https://github.com/user-attachments/assets/905bafda-e4ae-44b2-9b98-d3117bfe5980)
+
+
+
+
 this is a joke
